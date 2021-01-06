@@ -1,2 +1,3 @@
 # whatsapp-bot
-Need Patner wkkwkw , nanti ane kasih kok sc botnya
+Need partner wkkwkw , nanti ane kasih kok sc botnya
+wa.me/6281414046576
